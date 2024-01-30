@@ -7,7 +7,7 @@
 
 - 💬 Ask me about *Artificial Intelligence, Data Science, Python*
 
-- 📫 How to reach me **manindersinghchattha.666@gmail.com**
+- 📫 How to reach me **manindersingh.41dev@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
